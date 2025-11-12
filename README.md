@@ -1,2 +1,2 @@
 # snailwithwings.github.io
-Personal Website for... ME!
+Joe is a bish
